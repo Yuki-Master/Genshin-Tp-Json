@@ -4,3 +4,4 @@
 # ·QQ群https://qm.qq.com/q/Uj30OJ4NKI
 # ·TG群https://t.me/GenshinJson
 # ·点位制作仅限支持Akebi或Korepi使用
+![Uploading 粉丝群.jpg…]()
